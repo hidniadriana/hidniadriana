@@ -22,4 +22,4 @@ This is how I document the expansion; the models, the experiments, the coursewor
 
 ## 📬 Let's Connect
 
-[LinkedIn](https://linkedin.com/in/nur-hidni-adriana-haslimi-8856ba1b7) · hidni.haslimi@gmail.com
+[LinkedIn](https://www.linkedin.com/in/hidni-adriana-haslimi-8856ba1b7?utm_source=share_via&utm_content=profile&utm_medium=member_ios) · hidni.haslimi@gmail.com
